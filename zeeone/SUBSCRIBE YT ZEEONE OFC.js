@@ -1,6 +1,6 @@
 /*
-Support channel ZEEONE OFC
+Support channel Bend Jelek Wad00
 
 
-Yang jual sc ini anak haram
+ngemntot loe anjing
 */
